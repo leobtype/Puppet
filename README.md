@@ -4,4 +4,4 @@
 マイク口パク機能付きデスクトップマスコット
 
 ## コミュニティ
-http://com.nicovideo.jp/community/co3354997
+http://com.nicovideo.jp/community/co3761937
